@@ -6,7 +6,7 @@ Amitabh Kant
 Ajay Sawhney  
 Dr. Neeta Verma  
 Gopala Krishnan S  
-R S Mani  
+SR S Mani  
 Abhishek Singh  
 Dr. Seema Khanna  
 
